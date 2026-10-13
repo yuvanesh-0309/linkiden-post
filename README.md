@@ -1,1 +1,1 @@
-# linkiden-post
+https://lnkd.in/p/gAXydfnY
